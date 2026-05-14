@@ -1,4 +1,4 @@
-#  
+#  aura ascension Script top is the best aura ascension Script, featuring instant win and anti-ban. Safe and powerful for all your needs.
 
 
 
